@@ -2,8 +2,8 @@
 
 Talofa Humans!
 
-Just started to learn about coding several weeks ago and am really enjoying it.
+Total newbie.
 
-This is so excited and I can't wait to learn and explore so much more.
+This is so exciting and I can't wait to learn and explore more.
 
 love drinking koko 
